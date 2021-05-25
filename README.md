@@ -1,0 +1,1 @@
+# Strive-Smartphone-Shop-Website
